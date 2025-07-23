@@ -1,4 +1,4 @@
 <div align="center">
   
-<img width="500" height="488" alt="Image" src="https://github.com/user-attachments/assets/df07649a-bde7-4358-a555-bed3384b9b45" />
+![Image](https://github.com/user-attachments/assets/eb30b12d-60ae-4940-8bda-179bec1cc202)
 Hi! please be scared to int. I do bite, I'm friendly and funny (funny).
