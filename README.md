@@ -2,7 +2,7 @@
   
 ![Image](https://github.com/user-attachments/assets/dae3d946-323e-4e11-8d2e-1e6c6235c95f)
 
-⠀c+h w2i appreciated. ✔ I'm friendly and funny (funny).
+⠀c+h and w2i appreciated. ✔ I'm friendly and funny (funny).
 
 I go by she/him. Feel free to add me on discord, the same user as my gh user!
 
