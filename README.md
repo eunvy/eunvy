@@ -4,3 +4,5 @@
 
 [ata](https://eunvyv.atabook.org/) 𖤐 sign . [straw](https://eunzys.straw.page/)
 
+hii me and wife..e.ee >ᴗ<
+
