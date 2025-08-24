@@ -1,6 +1,6 @@
 <div align="center">
   
-<img width="666" height="375" alt="Image" src="https://github.com/user-attachments/assets/591641bf-616a-4779-aa6e-2b7c595f8e93" />
+<img width="500" height="148" alt="Image" src="https://github.com/user-attachments/assets/1a320ce0-59e7-4bdd-9289-ec12eb3c6b83" />
 
-  wife and me , legit us
+  viya
 
