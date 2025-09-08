@@ -4,5 +4,5 @@
 
 [gun](https://guns.lol/eunvy) — sign [ata](https://eunvyv.atabook.org/)
 
-hii husb >_<
+w my freaky wife
 
