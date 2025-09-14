@@ -6,5 +6,5 @@
 
 [gun](https://guns.lol/eunvy) — sign [ata](https://eunvyv.atabook.org/)
 
-hello boyfriend 
+hello boyfriend youre awesome 
 
