@@ -1,10 +1,10 @@
 <div align="center">
 
-[old rentry](https://rentry.co/eunvys)
+[rentry](https://rentry.co/sunvven)
   
-<img width="594" height="420" alt="Image" src="https://github.com/user-attachments/assets/8b035c9a-cd40-4f3e-8b6f-712a31ebaa7e" />
+![Image](https://github.com/user-attachments/assets/72e6bc80-8df4-4721-805e-2d37e6933c0c)
 
 [gun](https://guns.lol/eunvy) — sign [ata](https://eunvyv.atabook.org/)
 
-w my freaky wife
+hello boyfriend 
 
