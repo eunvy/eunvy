@@ -4,7 +4,7 @@
 
 [rentry](https://rentry.co/sunvven)
   
-![Image](https://github.com/user-attachments/assets/72e6bc80-8df4-4721-805e-2d37e6933c0c)
+![Image](https://github.com/user-attachments/assets/4cb2676c-c6b8-42d8-9ffa-5f4bd5634d8a)
 
 [gun](https://guns.lol/eunvy) — sign [ata](https://eunvyv.atabook.org/)
 
