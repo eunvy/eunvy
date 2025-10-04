@@ -8,5 +8,5 @@
 
 [gun](https://guns.lol/eunvy) — sign [ata](https://eunvyv.atabook.org/)
 
-hello boyfriend youre awesome 
+my girlfriend is goated omega
 
