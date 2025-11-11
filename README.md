@@ -7,5 +7,5 @@ read [#rentry](https://rentry.co/sunvven) to int
 
 [gun](https://guns.lol/eunvy) — sign [atabook](https://eunvyv.atabook.org/)
 
-my girlfriend is THE omega. 
+my girlfriend is 𝓽𝓱𝓮 𝓸𝓶𝓮𝓰𝓪. 
 
