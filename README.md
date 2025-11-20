@@ -3,9 +3,10 @@
 
 read [#rentry](https://rentry.co/sunvven) to int
   
-![Image](https://github.com/user-attachments/assets/bf66088b-7481-4bf8-a00d-95e7ecd80d3a)
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/a245504a-ce17-4953-bd85-86f7d68cb7e3" />
+
+
 
 [gun](https://guns.lol/eunvy) — sign [atabook](https://eunvyv.atabook.org/)
 
-my girlfriend is 𝓽𝓱𝓮 𝓸𝓶𝓮𝓰𝓪. 
-
+𝗆𝗒 [𝗀𝗂𝗋𝗅𝖿𝗋𝗂𝖾𝗇𝖽](https://rentry.co/happybirthdayvigi) 𝗆𝖺𝖽𝖾 𝗍𝗁𝗂𝗌 𝖿𝗈𝗋 𝗆𝖾 :3
