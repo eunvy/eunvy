@@ -1,8 +1,6 @@
 <div align="center">
-  
 
 [<img width="100" height="83" alt="Image" src="https://github.com/user-attachments/assets/f7852e62-5e23-4fd1-ae08-dfe73f57b04c" />](https://rentry.co/sunvven) 
-  
 <img width="450" height="500" alt="Image" src="https://github.com/user-attachments/assets/52c9fa26-e3ce-4e6f-a3ce-eba0692a6cfa" />
 
 
