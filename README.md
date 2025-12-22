@@ -9,4 +9,4 @@ read [#rentry](https://rentry.co/sunvven) to int
 
 [gun](https://guns.lol/eunvy) — sign da [atabook](https://eunvyv.atabook.org/)
 
-𝗆𝗒 beloved 𝗆𝖺𝖽𝖾 𝗍𝗁𝗂𝗌 𝖿𝗈𝗋 𝗆𝖾 :3
+𝗆𝗒 beloved 𝗆𝖺𝖽𝖾 [𝗍𝗁𝗂𝗌](https://github.com/user-attachments/assets/a245504a-ce17-4953-bd85-86f7d68cb7e3) 𝖿𝗈𝗋 𝗆𝖾 :3
