@@ -2,7 +2,7 @@
 
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=eunvy&label=^^%20&color=f11985&style=flat" alt="paperings" /> </p>
 
-[<img width="90" height="65" alt="Image" src="https://github.com/user-attachments/assets/0bc387d3-9319-4aa5-8d56-64db1aee53bc" />](https://rentry.co/sunvven) 
+[<img width="85" height="60" alt="Image" src="https://github.com/user-attachments/assets/0bc387d3-9319-4aa5-8d56-64db1aee53bc" />](https://rentry.co/sunvven) 
 
 <div align="center">
   
