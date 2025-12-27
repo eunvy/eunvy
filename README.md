@@ -12,4 +12,4 @@
 
 [<img width="65" height="55" alt="Image" src="https://github.com/user-attachments/assets/74837d2a-5ba7-434d-8e29-d264725688ed" />](https://guns.lol/eunvy) ![Image](https://github.com/user-attachments/assets/975796f0-89f7-404f-a26f-ab448bc0be6a)  [<img width="100" height="70" alt="Image" src="https://github.com/user-attachments/assets/762c97be-3fae-4609-842e-0f67dea21f48" />](https://eunvyv.atabook.org/)
 
-𝗆𝗒 beloved ![Image](https://github.com/user-attachments/assets/0ce5a487-70f9-4955-b372-9cc2d147fff3) 𝗆𝖺𝖽𝖾 [𝗍𝗁𝗂𝗌](https://github.com/user-attachments/assets/a245504a-ce17-4953-bd85-86f7d68cb7e3) 𝖿𝗈𝗋 𝗆𝖾 :3
+𝗆𝗒 beloved ![Image](https://github.com/user-attachments/assets/0ce5a487-70f9-4955-b372-9cc2d147fff3) 𝗆𝖺𝖽𝖾 this [gift](https://github.com/user-attachments/assets/a245504a-ce17-4953-bd85-86f7d68cb7e3) 𝖿𝗈𝗋 𝗆𝖾 :3
