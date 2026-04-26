@@ -1,11 +1,1 @@
-<div align="center">
-  
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=eunvy&label=✶%20&color=48495C&style=flat" alt="eunvy" /> </p>
-  
-[<img width="450" height="200" alt="Image" src="https://github.com/user-attachments/assets/43ae9f58-5d9b-46ee-998c-96d97b58f3bf" />](https://rentry.co/viaya)  [<img width="350" height="100" alt="Image" src="https://github.com/user-attachments/assets/0d142005-9d7a-4b6c-a8e7-43d5e0673076" />](https://eunvyv.atabook.org/)
-
-<img width="500" height="350" alt="Image" src="https://github.com/user-attachments/assets/bc9dafd1-ba90-452b-8ad2-1715a1595904" />
-
-
-[<img width="420" height="150" alt="Image" src="https://github.com/user-attachments/assets/fed1095f-7caf-42a2-a163-ad40045f4085" />](https://open.spotify.com/track/1c2AFg2WpURtpsOTMr6ZBX?si=47e0b3364ba94c79)
 
